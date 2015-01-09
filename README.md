@@ -8,7 +8,7 @@ Video's of interviews with Paul Rand:
 + [Part 2](https://www.youtube.com/watch?v=LxiDNdM2-bM)
 + [Part 3](https://www.youtube.com/watch?v=2bA1LdQknbk)
 
-Video's of interviews with Steve Jobs on Paul Rand:
+Video of interview with Steve Jobs on Paul Rand:
 
 + [Part 1](https://www.youtube.com/watch?v=xb8idEf-Iak)
 
